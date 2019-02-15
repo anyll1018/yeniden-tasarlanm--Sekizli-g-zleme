@@ -1,0 +1,1 @@
+# yeniden-tasarlanm--Sekizli-g-zleme
